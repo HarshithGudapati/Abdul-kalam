@@ -13,5 +13,5 @@ In this page I want to list down the few achievements anf greatness of Abdul Kal
 1.The Government of India honoured him as the Padma Bushan in 1981.
 1. IN 1997 Kalam received highest civilian honour called Bharata Ratna.
 
-## For more information - 
+## For more information
 [click here](https://en.wikipedia.org/wiki/A._P._J._Abdul_Kalam)
