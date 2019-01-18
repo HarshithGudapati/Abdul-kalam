@@ -9,9 +9,9 @@ In this page I want to list down the few achievements anf greatness of Abdul Kal
 ![image](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/A._P._J._Abdul_Kalam_in_2008.jpg/800px-A._P._J._Abdul_Kalam_in_2008.jpg)
 
 ## Achievements and Honours
-1. he achieved 7 doctrates from 40 universities.
+1. He achieved 7 doctrates from 40 universities.
 1. The Government of India honoured him as the Padma Bushan in 1981.
-1. IN 1997 Kalam received highest civilian honour called Bharata Ratna.
+1. In 1997 Kalam received highest civilian honour called Bharata Ratna.
 
 ## For more information
 [click here](https://en.wikipedia.org/wiki/A._P._J._Abdul_Kalam)
